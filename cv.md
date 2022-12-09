@@ -30,6 +30,7 @@ Ekaterina Koltun
 :   **Emergency doctor**
 
 2021 - 2022
+
 :   **Sports medicine doctor**
 
 -------------------------------------------------------------------
